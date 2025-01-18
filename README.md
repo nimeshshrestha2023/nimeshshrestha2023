@@ -1,4 +1,4 @@
-#  🙋bout Me:
+# 🙋About Me:
 Friend of Technology🛡️
 
 
